@@ -1,3 +1,3 @@
-### Just a developer trying to make things work.
+### Just a person trying to make things work.
 
 ---
